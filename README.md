@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on store owners who want to improve the stores professionaly.
 - 📫 How to reach me?
       Whatsapp: +380 96 637 84 33
-      Discord: shopifydev4
       Email: shopifydevworkspace@gmail.com
       Teams: live:.cid.37f0a30c2fd3bfe4
 - 😄 Pronouns: He/Him
