@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Shopify developer who are building Shopify websites and Shopify private/public apps.
+- 👋 Hi, I’m Full Stack developer who have strong focusing on Shopify and web & app development.
 - 👀 I’m interested in dropshipping and ecommerce is my life.
 - 🌱 I’m currently learning about integration blockchain tech to Shopify websites.
 - 💞️ I’m looking to collaborate on store owners who want to improve the stores professionaly.
